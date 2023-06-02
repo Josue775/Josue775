@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+![](https://count.getloli.com/get/@Josue775.github.readme)
 <!--
 **Josue775/Josue775** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
